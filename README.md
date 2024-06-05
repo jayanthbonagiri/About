@@ -10,10 +10,10 @@ Welcome to my GitHub profile!
 - **LinkedIn**: [Jayanth Bonagiri](https://www.linkedin.com/in/jayanth-bonagiri)
 
 ### 🌍 Location
-Telangana, India
+- Telangana, India
 
 ---
 
-Feel free to connect with me on LinkedIn or drop me an email if you'd like to collaborate on a project or just have a chat! 😊
+- Feel free to connect with me on LinkedIn or email me if you'd like to collaborate on a project or just chat! 😊
 
 
